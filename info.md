@@ -1,7 +1,0 @@
-# Doprava
-
-Bude.
-
-# Dotaznik
-
-Pokus.
