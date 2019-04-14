@@ -47,9 +47,8 @@ V piatok niečo pohodlné, športové. V prípade dobrého počasia pôjdeme na
 prechádzku do lesa a podvečer sa všetci spolu vyúdime pri ohnisku a grile.
 
 V sobotu odporúčame niečo slušnejšie, ale obrad aj zábava budú prebiehať v
-uvoľnenej atmosfére. Predstavte si, že idete v nedeľu do kostola alebo do
-kaviarne. (Oblek netreba, ale môže byť.) Hlavne sa cíťte pohodlne a netrápte sa
-prípadnými módnymi faux paux.
+uvoľnenej atmosfére. (Oblek netreba, ale môže byť.) Hlavne sa cíťte pohodlne a
+netrápte sa prípadnými módnymi faux paux.
 
 ### Dary
 
