@@ -13,7 +13,7 @@ odubytovať do 10:00, spoločné priestory odovzdávame o 12:00.
 
 ### Program
 
-V piatok odporúčame prísť pred 15:00. Budeme mať pre Vás pripravený nepovinný
+V piatok odporúčame prísť pred 16:00. Budeme mať pre Vás pripravený nepovinný
 program približne od 16:00 do 20:00. Zhruba od 17:00 do 20:00 bude prebiehať
 opekačko-grilovačka a bude sa voľne prelínať s programom. (Bude nás veľa a naraz
 sa všetci k ohnisku a grilu nezmestíme.)
@@ -26,7 +26,7 @@ V sobotu doobeda je program individuálny. Odporúčame:
 * Vyhliadka čajka (ešte sme neboli, jedna z tých drahších)
 * Prechádzka po okolitej prírode (jedna z tých prírodnejších)
 
-Poobede okolo 13:30 bude (neoficiálny) obrad. Po ňom bude nasledovať svadobná
+Poobede o 16:00 bude (neoficiálny) obrad. Po ňom bude nasledovať svadobná
 hostina a klasická svadobná zábava.
 
 ### Jedlo
@@ -49,6 +49,10 @@ prechádzku do lesa a podvečer sa všetci spolu vyúdime pri ohnisku a grile.
 V sobotu odporúčame niečo slušnejšie, ale obrad aj zábava budú prebiehať v
 uvoľnenej atmosfére. (Oblek netreba, ale môže byť.) Hlavne sa cíťte pohodlne a
 netrápte sa prípadnými módnymi faux paux.
+
+Program v piatok a obrad v sobotu budú v prípade priaznivého počasia v
+exteriéri.  Doneste si prosím aj teplejšie oblečenie, môže byť chladno. Svadobná
+hostina a zábava budú v interiéri.
 
 ### Dary
 
